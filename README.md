@@ -1,1 +1,1 @@
-uploading very intial folder
+uploading very initial folder
